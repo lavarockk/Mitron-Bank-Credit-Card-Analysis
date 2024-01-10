@@ -49,7 +49,7 @@
 
 💫Live Dashboard:💫 https://lnkd.in/eNjQfHZc
 
-💫LinkedIn:💫 https://lnkd.in/ed4BekMz
+💫LinkedIn:💫 https://www.linkedin.com/in/venkata-siva-santhi-anantha-71634a27a/
 
 💫GitHub:💫 https://lnkd.in/eJtnpfvv
 
